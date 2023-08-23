@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on metaverse technology in its practical use for everydaylife. .
 - 📫 How to reach me:
 Website: hdbtc.io 
-Twitter: https://mobile.twitter.com/HDBTCfoundation
+Twitter: https://twitter.com/MetahomeDigital
 Telegram: https://t.me/hidigitalbtc
 
 <!---
