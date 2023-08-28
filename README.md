@@ -8,7 +8,7 @@
   
 - 📫 How to reach me:
   
-Website: hdbtc.io
+Website: https://hdbtc.io
 
 Twitter: https://twitter.com/MetahomeDigital
 
