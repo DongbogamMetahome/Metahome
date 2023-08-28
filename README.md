@@ -14,10 +14,6 @@ Twitter: https://twitter.com/MetahomeDigital
 
 Telegram: https://t.me/hidigitalbtc
 
-Metahone Logo
-
-images/스)정승환님 로고 파일_1.png
-
 <!---
 Metahome2022/Metahome2022 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
