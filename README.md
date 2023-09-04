@@ -1,12 +1,12 @@
-- 👋 Hi, I’m @Metahome2022.
+- 👋 Hi, this space is for @DongbogamMetahome.
   
-- 👀 I created HDBTC and META coins to be used for our services in a metaverse space.
+- 👀 We created HDBTC and META coins to be used for our services in a metaverse space.
   
-- 🌱 I’m interested in metaverse.
+- 🌱 We are interested in metaverse.
   
-- 💞️ I’m looking to collaborate on metaverse technology in its practical use for everydaylife.
+- 💞️ We are looking to collaborate on metaverse technology in its practical use for everydaylife.
   
-- 📫 How to reach me:
+- 📫 How to reach us:
   
 Website: https://hdbtc.io
 
